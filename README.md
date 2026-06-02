@@ -1,6 +1,6 @@
 <div align="center">
   
-${\textsf{\color{#2f5f30}no-one}}$ ${\textsf{\color{#31702d}gave}}$  ${\textsf{\color{#467e36}a}}$  ${\textsf{\color{#62983e}shit}}$  ${\textsf{\color{#7ba049}about}}$  ${\textsf{\color{#99b753}you}}$  ${\textsf{\color{#aec255}before}}$  ${\textsf{\color{#e9eb66}me!}}$
+${\textsf{\color{#2f5f30}no-one}}$ ${\textsf{\color{#31702d}gave}}$  ${\textsf{\color{#467e36}a}}$  ${\textsf{\color{#62983e}shit}}$  ${\textsf{\color{#7ba049}about}}$  ${\textsf{\color{#99b753}you}}$  ${\textsf{\color{#aec255}until}}$  ${\textsf{\color{#e9eb66}me!}}$
 
 <img width="236" height="236" alt="image" src="https://i.pinimg.com/736x/10/2c/31/102c310d5a5291de6daba9c3b8474a0b.jpg">
 
