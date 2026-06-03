@@ -16,5 +16,7 @@ ${\textsf{\color{#2f5f30}15}}$ ${\textsf{\color{#31702d}and}}$  ${\textsf{\color
 
 ${\textsf{\color{#2f5f30}asexual}}$  ${\textsf{\color{#467e36}genderthing}}$  ${\textsf{\color{#7ba049}lesbian}}$   ${\textsf{\color{#e9eb66}werewolf}}$
 
+[leave a message](https://lottieshauna.atabook.org) ${\textsf{\color{#e9eb66}𑣲}}$ [draw me something](https://qntlerqueen.straw.page)
+
 
 <img src=https://64.media.tumblr.com/c2a9a4d71f94158a177c7d010e1c4996/ba65820d36dc4725-79/s250x400/c2a9f598cd73684160f8fc5d3a940e6f66309d5a.gifv> <img src=https://64.media.tumblr.com/712de43191d9bebb10e46f8927470720/ba65820d36dc4725-18/s250x400/9c751748232ac1854f8235a46e84afecb18f441c.gifv> <img src=https://64.media.tumblr.com/a1c192f7328acb5d83f96fbb34873d7f/ba65820d36dc4725-c8/s250x400/a12c2fc31b2be04d4a6b75e503dd62a63edea254.gifv> <img src=https://64.media.tumblr.com/6e3e156ced48afcd82e9996e9ace012a/ba65820d36dc4725-bd/s250x400/5bbcd8613d77cde94d4bcfbd65562c38ab678863.gifv>
