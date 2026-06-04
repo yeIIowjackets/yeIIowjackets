@@ -18,7 +18,7 @@ ${\textsf{\color{#2f5f30}15}}$ ${\textsf{\color{#31702d}and}}$  ${\textsf{\color
 
 ${\textsf{\color{#2f5f30}asexual}}$  ${\textsf{\color{#467e36}genderthing}}$  ${\textsf{\color{#7ba049}lesbian}}$   ${\textsf{\color{#e9eb66}werewolf}}$
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o1pxrcj7vl9gc5dirdbdcixhu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=2b6029&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o1pxrcj7vl9gc5dirdbdcixhu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=2b6029&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 [leave a message](https://lottieshauna.atabook.org) ${\textsf{\color{#e9eb66}𑣲}}$ [draw me something](https://qntlerqueen.straw.page)
 
