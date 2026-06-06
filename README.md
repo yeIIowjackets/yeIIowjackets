@@ -10,9 +10,11 @@ ${\textsf{\color{#2f5f30}don't}}$  ${\textsf{\color{#467e36}worry,}}$  ${\textsf
 ![](https://komarev.com/ghpvc/?username=yeIIowjackets&label=tragic_saints‎&color=384e1d)
 
 
-${\textsf{\color{#2f5f30}shauna}}$ ${\textsf{\color{#31702d}shipman}}$  ${\textsf{\color{#467e36}haters}}$  ${\textsf{\color{#62983e}do}}$  ${\textsf{\color{#7ba049}NAWT}}$  ${\textsf{\color{#99b753}interact}}$  ${\textsf{\color{#aec255}with}}$  ${\textsf{\color{#d7db6a}me}}$  ${\textsf{\color{#e9eb66}EVERRR}}$
+${\textsf{\color{#2f5f30}c+h}}$ ${\textsf{\color{#31702d}always}}$  ${\textsf{\color{#467e36}encouraged}}$  ${\textsf{\color{#62983e}!!}}$  ${\textsf{\color{#7ba049}i}}$  ${\textsf{\color{#99b753}love}}$  ${\textsf{\color{#aec255}sitting}}$  ${\textsf{\color{#d7db6a}with}}$  ${\textsf{\color{#e9eb66}people!}}$
 
-${\textsf{\color{#2f5f30}pro}}$ ${\textsf{\color{#31702d}and}}$  ${\textsf{\color{#467e36}dark}}$  ${\textsf{\color{#62983e}shippers}}$  ${\textsf{\color{#7ba049}do}}$  ${\textsf{\color{#99b753}not}}$  ${\textsf{\color{#aec255}interact}}$  ${\textsf{\color{#d7db6a}with}}$  ${\textsf{\color{#e9eb66}me}}$
+${\textsf{\color{#2f5f30}shauna}}$ ${\textsf{\color{#31702d}shipman}}$  ${\textsf{\color{#467e36}haters}}$  ${\textsf{\color{#62983e}do}}$  ${\textsf{\color{#7ba049}NOT!}}$  ${\textsf{\color{#99b753}interact}}$  ${\textsf{\color{#aec255}with}}$  ${\textsf{\color{#d7db6a}me}}$  ${\textsf{\color{#e9eb66}EVER!}}$
+
+${\textsf{\color{#2f5f30}pro}}$ ${\textsf{\color{#31702d}and}}$  ${\textsf{\color{#467e36}dark}}$  ${\textsf{\color{#62983e}shippers}}$  ${\textsf{\color{#7ba049}do}}$  ${\textsf{\color{#99b753}NOTTTT}}$  ${\textsf{\color{#aec255}interact}}$  ${\textsf{\color{#d7db6a}with}}$  ${\textsf{\color{#e9eb66}me}}$
 
 ${\textsf{\color{#2f5f30}15}}$ ${\textsf{\color{#31702d}and}}$  ${\textsf{\color{#467e36}under}}$  ${\textsf{\color{#62983e}+}}$  ${\textsf{\color{#7ba049}25}}$  ${\textsf{\color{#99b753}and}}$  ${\textsf{\color{#aec255}over}}$  ${\textsf{\color{#d7db6a}limit}}$  ${\textsf{\color{#e9eb66}interactions}}$
 
