@@ -1,6 +1,6 @@
 <div align="center">
 
-[carrd](https://bloodrituals.carrd.co) ♱ [rentry](https://rentry.co/bloodrituaIs) ♱ [strawpage](https://ritualbeating.straw.page) ♱ [atabook](https://lottieshauna.atabook.org)
+[carrd](https://bloodrituals.carrd.co) ♱ [rentry](https://rentry.co/Iawtie) ♱ [strawpage](https://ritualbeating.straw.page) ♱ [atabook](https://lottieshauna.atabook.org)
 
 <img src=https://64.media.tumblr.com/a7b7c90e9743500a8c1076ddc899bb29/ba65820d36dc4725-18/s250x400/3067e7f078787d00f22f64855852c04722590984.gifv> <img src=https://64.media.tumblr.com/cfadf6982c80746b29a5f7f47e14b883/ba65820d36dc4725-db/s250x400/0bdf499e8ed1c5aba6c096ca9d63ce300fcdca2d.gifv> <img src=https://64.media.tumblr.com/b820d2b42d35b6aa45723a6a9222b8d6/ba65820d36dc4725-0c/s250x400/6e2fa8bb025f095ab6052eae41fec1ed9a5a4778.gifv> <img src=https://64.media.tumblr.com/a0ce6b17f5c494685e446322246e09aa/ba65820d36dc4725-33/s250x400/43aa4baa53b992f2e4765b117aad5e9de84ee21b.gifv>
 
