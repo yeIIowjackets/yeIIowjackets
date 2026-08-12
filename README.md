@@ -1,32 +1,13 @@
 <div align="center">
 
-[carrd](https://bloodrituals.carrd.co) ♱ [rentry](https://rentry.co/Iawtie) ♱ [strawpage](https://ritualbeating.straw.page) ♱ [atabook](https://lottieshauna.atabook.org)
+${\textsf{\color{#71462e}i}}$ ${\textsf{\color{#815337}guess}}$ ${\textsf{\color{#8d5c40}i'll}}$ ${\textsf{\color{#986342}do}}$ ${\textsf{\color{#a36b46}it}}$ ${\textsf{\color{#b17a53}with}}$ ${\textsf{\color{#be8659}you!}}$
 
-<img src=https://64.media.tumblr.com/a7b7c90e9743500a8c1076ddc899bb29/ba65820d36dc4725-18/s250x400/3067e7f078787d00f22f64855852c04722590984.gifv> <img src=https://64.media.tumblr.com/cfadf6982c80746b29a5f7f47e14b883/ba65820d36dc4725-db/s250x400/0bdf499e8ed1c5aba6c096ca9d63ce300fcdca2d.gifv> <img src=https://64.media.tumblr.com/b820d2b42d35b6aa45723a6a9222b8d6/ba65820d36dc4725-0c/s250x400/6e2fa8bb025f095ab6052eae41fec1ed9a5a4778.gifv> <img src=https://64.media.tumblr.com/a0ce6b17f5c494685e446322246e09aa/ba65820d36dc4725-33/s250x400/43aa4baa53b992f2e4765b117aad5e9de84ee21b.gifv>
+<img src=https://i.postimg.cc/25fJj4Bg/Untitled545-20260811203802.webp>
 
-  
-${\textsf{\color{#2f5f30}you}}$  ${\textsf{\color{#467e36}could}}$  ${\textsf{\color{#62983e}let}}$  ${\textsf{\color{#7ba049}it}}$  ${\textsf{\color{#99b753}be}}$  ${\textsf{\color{#e9eb66}different}}$
+${\textsf{\color{#71462e}charlotte}}$ ${\textsf{\color{#815337}or}}$ ${\textsf{\color{#8d5c40}bonnibel}}$ ${\textsf{\color{#986342}ﾉ}}$ ${\textsf{\color{#a36b46}lottie}}$ ${\textsf{\color{#b17a53}or}}$ ${\textsf{\color{#be8659}bonnie}}$
 
-<img width="236" height="236" alt="image" src="https://i.pinimg.com/736x/5f/b6/3e/5fb63eea184054884a7a1f5ac7413c18.jpg">
+${\textsf{\color{#71462e}any}}$ ${\textsf{\color{#815337}pronouns}}$ ${\textsf{\color{#8d5c40}though}}$ ${\textsf{\color{#986342}she}}$ ${\textsf{\color{#a36b46}it}}$ ${\textsf{\color{#b17a53}he}}$ ${\textsf{\color{#be8659}preferred}}$
 
-![](https://komarev.com/ghpvc/?username=yeIIowjackets&label=wilderness_acolytes‎&color=384e1d)
+${\textsf{\color{#71462e}pro}}$ ${\textsf{\color{#815337}dark}}$ ${\textsf{\color{#8d5c40}anti}}$ ${\textsf{\color{#986342}ship}}$ ${\textsf{\color{#a36b46}do}}$ ${\textsf{\color{#b17a53}not}}$ ${\textsf{\color{#be8659}interact}}$ <img src=https://64.media.tumblr.com/e4cfbbea9c6a0b3b8aba5844b8e1dc37/5334d8b038872c2b-ad/s75x75_c1/eae67b484184f79faddcaef16e18bb7765f05bb4.gifv>
 
-
-${\textsf{\color{#2f5f30}c+h}}$ ${\textsf{\color{#31702d}always}}$  ${\textsf{\color{#467e36}encouraged}}$  ${\textsf{\color{#62983e}!!}}$  ${\textsf{\color{#7ba049}i}}$  ${\textsf{\color{#99b753}love}}$  ${\textsf{\color{#aec255}sitting}}$  ${\textsf{\color{#d7db6a}with}}$  ${\textsf{\color{#e9eb66}people!}}$
-
-${\textsf{\color{#2f5f30}shauna}}$ ${\textsf{\color{#31702d}shipman}}$  ${\textsf{\color{#467e36}haters}}$  ${\textsf{\color{#62983e}do}}$  ${\textsf{\color{#7ba049}NOT!}}$  ${\textsf{\color{#99b753}interact}}$  ${\textsf{\color{#aec255}with}}$  ${\textsf{\color{#d7db6a}me}}$  ${\textsf{\color{#e9eb66}EVER!}}$
-
-${\textsf{\color{#2f5f30}pro}}$ ${\textsf{\color{#31702d}and}}$  ${\textsf{\color{#467e36}dark}}$  ${\textsf{\color{#62983e}shippers}}$  ${\textsf{\color{#7ba049}do}}$  ${\textsf{\color{#99b753}NOTTTT}}$  ${\textsf{\color{#aec255}interact}}$  ${\textsf{\color{#d7db6a}with}}$  ${\textsf{\color{#e9eb66}me}}$
-
-${\textsf{\color{#2f5f30}15}}$ ${\textsf{\color{#31702d}and}}$  ${\textsf{\color{#467e36}under}}$  ${\textsf{\color{#62983e}+}}$  ${\textsf{\color{#7ba049}25}}$  ${\textsf{\color{#99b753}and}}$  ${\textsf{\color{#aec255}over}}$  ${\textsf{\color{#d7db6a}limit}}$  ${\textsf{\color{#e9eb66}interactions}}$
-
-${\textsf{\color{#2f5f30}asexual}}$  ${\textsf{\color{#467e36}genderthing}}$  ${\textsf{\color{#7ba049}lesbian}}$   ${\textsf{\color{#e9eb66}werewolf}}$
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o1pxrcj7vl9gc5dirdbdcixhu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=2b6029&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-
-
-
-<img src=https://64.media.tumblr.com/c2a9a4d71f94158a177c7d010e1c4996/ba65820d36dc4725-79/s250x400/c2a9f598cd73684160f8fc5d3a940e6f66309d5a.gifv> <img src=https://64.media.tumblr.com/712de43191d9bebb10e46f8927470720/ba65820d36dc4725-18/s250x400/9c751748232ac1854f8235a46e84afecb18f441c.gifv> <img src=https://64.media.tumblr.com/a1c192f7328acb5d83f96fbb34873d7f/ba65820d36dc4725-c8/s250x400/a12c2fc31b2be04d4a6b75e503dd62a63edea254.gifv> <img src=https://64.media.tumblr.com/6e3e156ced48afcd82e9996e9ace012a/ba65820d36dc4725-bd/s250x400/5bbcd8613d77cde94d4bcfbd65562c38ab678863.gifv>
-
-[pronoun page](https://en.pronouns.page/@qntlerqueen) ♱ [prns.cc](https://pronouns.cc/@qntlerqueen) ♱ [tumblr](https://tumblr.com/qntlerqueen) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o1pxrcj7vl9gc5dirdbdcixhu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=71462e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
